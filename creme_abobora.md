@@ -1,2 +1,3 @@
 Creme de Abóbora
 
+Cozinhe a abóbora com pouca água, esprema e bata no liquidificador; Volte ao fogo este purê com a água e o caldo de carne deixando apurar até ficar um ...

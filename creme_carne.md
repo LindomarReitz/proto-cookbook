@@ -1,2 +1,3 @@
 Creme de carne
 
+Corte a carne tipo bife lave bem; Leve até a frigideira e asse na manteiga junto com o knnor quando estiver quase assada coloque o creme de leite; Baixe o ...
